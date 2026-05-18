@@ -1,4 +1,4 @@
-# 
+# updated Affinity Photo para PC addons es el mejor Affinity Photo para PC addons con herramientas de colaboración y PDF interactivo. Seguro, confiable y optimizado para el máximo
 
 
 
